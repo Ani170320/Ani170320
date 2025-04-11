@@ -3,7 +3,7 @@
 📍 Bangalore, India  
 📞 +91-7019537056  
 📧 anirudhgadgikar@gmail.com  
-🔗 [LinkedIn](anirudh170320@gmail.com) • [GitHub](Ani170320)
+🔗 [LinkedIn](anirudh170320@gmail.com) • [GitHub](https://github.com/Ani170320)
 
 ---
 
